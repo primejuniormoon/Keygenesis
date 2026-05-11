@@ -31,7 +31,7 @@ Unlock the full potential of Adobe Photoshop 2026 with our professional license 
    - Navigate to the extracted folder
    - Run .exe file to start the generator
 
-## ⚡ Features
+## ⚡ Features:
 
 - ✅ **Full Photoshop 2026 Activation**
 - ✅ **One-Click License Generation**
